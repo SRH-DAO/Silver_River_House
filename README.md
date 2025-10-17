@@ -1,0 +1,1 @@
+This repository contains the foundational white papers of Silver River House (SRH). These documents establish the core nomenclature, mandate, and operational framework for SRH, a regency focused on natural law and higher-order consciousness. It outlines the roles of specialists and the principles guiding the organization.
